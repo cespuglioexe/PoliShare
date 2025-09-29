@@ -4,6 +4,6 @@
     Avino Giovanni •
     Sergio Bolsieri <br>
     Leucci Francesco •
-    Pallavinici Nicolò •
+    Pallavicini Nicolò •
     Tonarelli Marco
 </p>
